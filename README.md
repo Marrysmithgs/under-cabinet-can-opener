@@ -1,1 +1,2 @@
 # under-cabinet-can-opener
+An [under cabinet can opener](https://ovenadventure.com/best-under-cabinet-can-openers/) is a kitchen gadget that helps you open cans without having to use your hands. This is especially helpful if you have a lot of cans to open or if your hands are full. Under-cabinet can openers are usually attached to the underside of cabinets with a magnet, so they stay in place while you’re using them.
